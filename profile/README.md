@@ -1,4 +1,4 @@
-## Hi there 👋
+## 👋 Hey!
 
 Zion creates, cultivates, and leads new businesses with technology to help companies succeed.
 

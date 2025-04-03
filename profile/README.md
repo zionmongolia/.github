@@ -2,4 +2,4 @@
 
 Drive your business successfully through technology and innovation with us.
 
-[Website](https://www.zion.mn)
+[www.zion.mn](https://www.zion.mn)
